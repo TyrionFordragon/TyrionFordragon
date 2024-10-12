@@ -9,7 +9,6 @@ ___
 ___
 
 **How to reach me:**
--     gabrielallen1220@gmail.com (EMAIL)
 -     tyrionfordragon (DISCORD)
 
 ___
